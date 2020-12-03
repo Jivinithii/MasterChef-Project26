@@ -1,0 +1,12 @@
+the ingredients are:
+     3 1/4 cups flour
+     1 teaspoon baking soda
+     3/4 teaspoon salt
+     1 1/3 cups butter, softened
+     1 1/4 cups granulated sugar
+     1 cup firmly packed light brown sugar
+     2 eggs
+     4 teaspoons McCormick® All Natural Pure Vanilla Extract
+     1 package (12 ounces) semi-sweet chocolate chips 
+
+There is a total of 30 servings.
